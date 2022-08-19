@@ -5,7 +5,7 @@
 **<h3>➡️&nbsp;https://cvrocha.github.io/Homenagem-maes ⬅️&nbsp;</h3>**
 
 #
-![cvrocha github io_First-Bikcraft_](https://user-images.githubusercontent.com/62439381/185506504-7f681673-e393-4080-a19f-0ebbe8f96514.png)
+![cvrocha github io_Homenagem-maes_-min](https://user-images.githubusercontent.com/62439381/185644198-5583d801-1559-44a4-a4de-7fc62978fae3.png)
 
 ## Sobre 📝
 Foi um site feito durante meu periodo de faculdade
